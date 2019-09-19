@@ -6,3 +6,5 @@ The cast of this show are super **awesome**. You should *check* them out. They i
 + Imaekop
 + Jamie
 + Ofon
+
+We will commence shooting the 10th season of the show in early April 2020.
